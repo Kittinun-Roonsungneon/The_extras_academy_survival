@@ -1,0 +1,408 @@
+# Chapter 112 : ขอโทษนะคะ คุณเยนิกา (4) (Excuse Me, Miss Yennekar (4))
+
+- **ชื่อเรื่อง:** The Extra’s Academy Survival Guide
+- **ตอนที่:** 112
+- **ชื่อตอนภาษาอังกฤษ:** Excuse Me, Miss Yennekar (4)
+- **ไฟล์ต้นฉบับ:** `eng/112 - The Extra's Academy Survival Guide Chapter 112 - Excuse Me, Miss Yennekar (4).md`
+
+---
+
+No matter how unexpected the situation was, you could never panic.
+
+You had to calmly assess the situation and take the most appropriate action.
+
+Whether it was while living in the wild, in the middle of a fight, or dealing with events related to the storyline, that was a principle that I could never forget.
+
+After living that way for over a year, I was never taken aback—regardless of the situation—and I could skillfully deal with the majority of issues, but…
+
+“……”
+
+I felt as if my brain had suddenly turned off and on for a moment upon hearing เยนิกา’s sudden fastball. Right now, I need to find a reason to buy some time for me to organize my thoughts.
+
+Fortunately, there was an easy excuse right here. My thumb was dripping with blood.
+
+After setting the knife aside, I used a leftover piece of cloth to wrap my finger like a bandage. That would give me time to come up with a placeholder answer for the time being.
+
+While I was applying first aid to myself, เยนิกา didn’t move one bit.
+
+She had her face buried in her lap, not caring about the smoke from the campfire that was going her way. Judging from her reaction, it seemed that she herself knew the meaning of what she had said. At the very least, you couldn’t possibly say that I was the one who had misunderstood what she had said.
+
+After I finished first aid to my finger, it was time to once again face the problem.
+
+“I guess, first off… It’s probably something that you had already thought about as well, but… I still need to point it out.”
+
+I threw the leftover piece of cloth into the campfire, burning it. Then, after wiping off the excess blood with a handkerchief, I continued talking.
+
+Since it was something she had told me after deep consideration, it was something I had to listen and respond to as sincerely and calmly as possible. All without showing the slightest bit of panic or absurdity. That would only be polite.
+
+“…I wonder if there’s really a need for me to say this out loud but… I like you quite a bit. It’s not just me, but everyone else thinks the same. You’re truly kind, sincere, and an overall good person.”
+
+That was just a cushion before I brought up my main point. But when เยนิกา heard those words, she suddenly buried her head further into her lap as her shoulders trembled. Seeing her start breathing so fast and heavily, suddenly I was also struggling for air.
+
+I started to peel the remaining skin from the apple as I took a bite out of it. I had cut off all the blood-stained parts and thrown them away, but it still felt a bit uncomfortable to give this one to เยนิกา to eat.
+
+After taking some time to calm down, I spoke to เยนิกา, who was trying to calm her breathing.
+
+“…But I still can’t just *not* point this fact out. I’m a guy.”
+
+In this situation, the more calm, realistic, and objective you are the better.
+
+“Listen, เยนิกา. I’m not sure what you think of yourself, but… You’re definitely very attractive. You are quite beautiful. So for an average person, someone like you…”
+
+“S-Stop…”
+
+I was left literally speechless at her sudden declaration.
+
+Was my effort to speak calmly, in a low voice without an expression on my face, to the best of my ability… all meaningless?
+
+With her head in her lap, เยนิกา’s face had already reddened quite a bit.
+
+There were even some tears on her face, as if she had just been subjected to some kind of harsh bullying.
+
+“S-Sorry… I-I couldn’t breathe, so…”
+
+“……”
+
+“No… I still can’t catch my breath… Wait… Can I catch my breath for a moment…?”
+
+She was still speaking politely…? Was she really going to keep being stubborn about this…?
+
+“…Alright.”
+
+*Should I just stay quiet and sit down, then…?*
+
+For a while, we just listened to the sound of the campfire. Well, to make any progress it was best to take a break. Once she started to feel a bit better, then her heart would also calm down… The fact that the two of us kept repeating this precise sequence of actions with each other, it felt like we were trying to dismantle a bomb or something.
+
+I picked up two wooden mugs and filled them with cold water. I handed one to เยนิกา as I took a few sips from the other one.
+
+As if she was thirsty, she quickly gulped down all of the cold water in one shot.
+
+The atmosphere then started to pick back up as she let out a “Fwuaaah” noise.
+
+Without a particular reason, the atmosphere that was heating up between us seemed to have calmed down once again… So, I brought the topic back up.
+
+“So, let’s start talking about living together again…”
+
+When I said those words, it once again felt as if the atmosphere had heated up, the temperature soaring high into the sky. เยนิกา lowered her head again as her face started to turn red.
+
+It seemed that she had started to think about what I was going to say again. At that point, no matter how many times the mood calmed down it won’t be of any use.
+
+It would be more important to just bulldoze through my part than to have her jump to her own conclusions. If we continued having to take breaks, I’d never get to say my piece before the night ended. Also, didn’t เยนิกา still have to go back in time for หอพักเด็กซ์’s curfew?
+
+However, a good thing was that my composure was still being well maintained.
+
+เยนิกา’s fastball remarks made me stumble for a bit, but it was a matter that I still could deal with rationally.
+
+Being the one that had the most common sense, I needed to steady my heart and tell her what I needed to.
+
+Thinking of building up a wall around my heart, it would be like a huge iron fortress.
+
+No matter how much it was bombarded, as long as I kept my rationality, it wouldn’t easily collapse.
+
+During the past year of my hellish lifestyle, hadn’t I already become used to calmly maintaining my rationality in any situation?
+
+And the person I was dealing with was เยนิกา. No matter what the situation might be, she was still เยนิกา.
+
+She might have made an unpredictable fastball remark for a brief moment, but she was still a reasonable person. As long as I could say what I needed to from a reasonable standpoint, it should be fine.
+
+“Right now, I can be considerate of you and treat you like a gentleman as much as possible, but…
+
+No one knows how things will turn out if we start doing something like living together under one roof. I always want to be considerate towards you and respect you, but… Strictly speaking, at the end of the day men are all the same. Thanks for believing in me, but still… Never forget that the only person capable of protecting yourself is you, เยนิกา.”
+
+Saying things piece by piece would only backfire on me, so I ended up saying my entire piece all in one go.
+
+Glancing over at เยนิกา, who was tightly holding onto her knees, it seemed that she had listened to what I had to say.
+
+I was proud of myself for having been able to maintain my reason to the end.
+
+With that, there shouldn’t be any more explosive remarks from เยนิกา.
+
+However, as if trying to prove that my thoughts were merely me being complacent, she started to make eye contact with me as she said…
+
+“Still, if it’s with you, เอ็ด, that doesn’t matter…”
+
+เยนิกา words, which she sort of muffled, completely stopped me from saying anything else.
+
+After a bit of a pause, เยนิกา’s reaction suddenly returned to her. As soon as she realized the meaning behind the words she had just said, her shoulders began to tremble, goosebumps crawled across her body, and her once calm face started to rush with blood.
+
+The term ‘speechless’ was the perfect way to describe her.
+
+She opened her mouth to try and say something, but nothing came out.
+
+“E-Edddddd….”
+
+As if trying to say ‘เอ็ด’, she bit on her tongue before taking another deep breath.
+
+She then looked at me, covering her mouth with both hands. Regardless of what she just did, she was already running out of breath because of the unnecessarily heated atmosphere. But after making a seemingly equivalent mistake, she seemed to be completely embarrassed.
+
+As for me, I was busy scratching my chin while trying to grab onto a string of reasons.
+
+Unfavorable factors had stacked up.
+
+Normally, I would have been able to respond well to anything she said—but ironically, all sorts of variables were starting to stack on top of each other, pulling my string of reason to its very limit.
+
+After the difficult and exhausting student council president election, I had come back to the camp feeling a bit more liberated and relaxed, but… now that was happening.
+
+It felt like I’d been constantly putting myself in extreme situations. The days of just surviving in peace seemed to have come to an end. With the basic infrastructure of the camp already taken care of, the amount of labor I needed to do has been considerably reduced, putting me at ease.
+
+เยนิกา and I talked to each other politely for a bit, so things had started to feel a bit stranger than usual. However, it was still all familiar to me… Like a tug-of-war verging on the border of familiarity and the strange unknown.
+
+The bright moonlit sky. The moonlight gently lit the camp. The crackling flames. The sounds of the bugs in the grass… It all sounded sentimental to me.
+
+Then there was the girl whose face was entirely red because she couldn’t handle the words that she had spit out semi-impulsively.
+
+Thinking ‘Will I survive from this? Can I even survive from this?’, those words seemed to be crying out to me… I slowly closed my eyes.
+
+At that point, strangely enough I ended up actually feeling more relaxed.
+
+“เยนิกา.”
+
+Even just by calling her name out softly, her shoulders began to tremble… It wasn’t very comfortable for me to say this either.
+
+Still, there were things that needed to be pointed out.
+
+Even if you were to bring hundreds of men from all across the world and ask them the same question, they would all immediately accept her offer with no questions asked, losing all sense of reason. But still, until the very end, there was something that I couldn’t ignore.
+
+And that was the circumstances as to why เยนิกา had even said such a thing.
+
+I was taken aback for a moment by the shock of her sudden fastball-like comment, but I still couldn’t make the mistake of not being able to see the underlying reason behind the matter. All because I had simply been swayed by the situation.
+
+So, I asked her bluntly.
+
+“…Are things that difficult for you these days?”
+
+As if cold water was completely covered in the words I spoke… The blood rushing to เยนิกา’s face had suddenly calmed. And I could guess from the deflated look on her face in an instant.
+
+Even though หอพักเด็กซ์ was just a regular dormitory, it still was not worse than living a life in the wild. On the contrary, I heard that living there was pretty decent.
+
+Still, the reason she had suddenly come to my camp, saying she wanted to live there, was obvious. Mentally, เยนิกา had already reached her limit.
+
+While living a life with others at หอพักเด็กซ์, it’s been nearly a year of having to constantly befriend and hang out with the other students her age.
+
+Expectations, favors, and respect. For some, it acted like a driving force, pushing them to go further. But for others, it was like a poison.
+
+“……”
+
+Then the silence returned.
+
+However, it was distinctly different from the silence from before.
+
+เยนิกา hugged her knees as she started blankly at the campfire, smiling bitterly.
+
+“There really is nothing you don’t know, เอ็ด.”
+
+I was used to her bright smile and laugh. The lively expression she had on her face as she walked around the school and greeted her friends.
+
+Her smile was always sincere, so many people wouldn’t be able to understand the strange burden that was hidden deep in her heart.
+
+In short, เยนิกา was probably…
+
+“I must have wanted to run away. I just missed the days living alone in my private room back at หอพักโอฟีเลียส. Don’t you think I’m stupid?”
+
+Rather than directly answering her… I just shook her head. Who in the world would ever criticize her for being stupid?
+
+“How can I say it? This camp… It feels like an escape to me. So, I guess as much as possible, I wanted to run away and escape here. Of course, hearing this must be quite burdensome for you, เอ็ด.”
+
+“After all, this camp is the product of the hard work you put into it over the past year… It’s proof that you have been living fiercely and passionately out here in the wild. It would be ridiculous for me to suddenly come in claiming it as mine…”
+
+Since this was เยนิกา, she knew it all too well.
+
+The sweltering heat that comes in the summer could make you collapse from overworking. And the brutal cold of the winter that would make your entire body constantly tremble.
+
+Also, just how special the camp was to me. It was something I had built up while directly dealing with the various issues of survival… She was a girl that understood that better than anyone else.
+
+She must have thought of herself as being extremely shameless to suddenly invade my space and bring up her own emotional problems as if it was nothing…
+
+However, she also seems to have misinterpreted part of her own problem due to her strong temperament. And that was the action of ‘running away’.
+
+“This isn’t something that’s going to be solved by running away. Rather than running away from your problems, you should think about fighting them face to face. Yeah. For a while, I was also weak.”
+
+As I spoke, เยนิกา nodded her head. The saddened look on her face was still there.
+
+“You’re right, but still… I just wanted to ask you once, เอ็ด. I knew it would be a burden for you, but still…. I don’t know why I did it.”
+
+After saying that, she sniffled as she stopped talking.
+
+We both stared at the campfire for quite some time, sharing a moment together.
+
+I then looked up at the starry sky with my elbows on my knees.
+
+All kinds of constellations were shining brightly, but on the ground beneath them was only darkness… Right now, I couldn’t even see what was beyond the grass. Life was normally like that. And for เยนิกา, it must also be the same.
+
+I tossed the remaining core of the apple into the campfire.
+
+“Certainly, it was burdensome.”
+
+I spoke bluntly about it. Seeing how serious เยนิกา was, I couldn’t deal with her by lying.
+
+Completely saddened by my words, เยนิกา put her head on her lap as she let out a bitter laugh.
+
+“Overall, what you’re saying is right, เยนิกา. Suddenly hearing that you want to come and live in this camp, I was taken aback at first too. It was only natural that I had no idea how to respond to you.”
+
+“…Haha, I guess so.”
+
+It hurt my heart to hear her voice growing wet, so I decided to finish what I was saying without beating around the bush any longer.
+
+I dusted off my clothes as I stood up from my seat, moving over to sit down next to เยนิกา. Sitting next to her, I started to realize just how petite her body really was.
+
+“I’m not going to talk politely anymore.”
+
+“Heuk.”
+
+As if เยนิกา was suddenly stabbed she quickly gasped, her breath catching. Had that completely meaningless stubbornness she suddenly had finally shattered?
+
+In fact, I felt like I finally started to realize why she was like that. The reason she tried to widen the distance with me by talking politely was because she had recognized her reality.
+
+Whether it was the expectations or the admiration, เยนิกา faced constant pressure… And because of her sincere and strong personality, the more there was, the higher chance there was that she was trying to take everything head on.
+
+If that was the case, whether it was the existence of the camp—which she had always run away to—or the existence of me… Even if she thought it was the right thing to try and distance herself from it all, she couldn’t help but do the opposite. She must have been caught up in her own obsession with the idea that running away wasn’t the right answer.
+
+She might not understand it well because she was still young and inexperienced.
+
+Reality was strangely different from fairytales. In times of hardship, more often than not the answer was to just run away.
+
+I’d seen a lot more people find their happiness through finding a different path in life instead of piling the scars over their hearts, forcing themselves to face it all head on.
+
+However, considering her life—where she has only received sincere respect and goodwill from others—it was highly likely that running away while ignoring her issues wasn’t an option at all. That was the problem.
+
+“By the way, เยนิกา. Strictly speaking, the reason I’m burdened is a completely different issue.”
+
+“What?”
+
+“Let’s not be arrogant. In life, people live by burdening others, and bearing the burdens that others place on them. By that logic, there isn’t a person out there that can live a life not being indebted to others. We continue to live while relying on each other.”
+
+“……”
+
+“And right now, I’m in a position where I don’t just owe you for one or two things.”
+
+Elementalism classes, helping while I lived out in seclusion, and more… I already owed เยนิกา a lot. That was why my next goal in magic engineering was to make a wand for her. There was nothing better that I could give to her.
+
+For that girl, even me simply repaying her in such a natural way would only act as another debt in her heart.
+
+It was truly heartwarming to be born with such a kind and beautiful heart, but sometimes it could also act as a burden.
+
+“Then…”
+
+“…Still, I think it will be too burdensome to live under one roof. With that in mind, wouldn’t it be fine to just build another cabin?”
+
+At those words, it felt as if เยนิกา’s eyes had subtly widened.
+
+Speaking politely, re-establishing our relationship, going back to our somewhat awkward relationship—there seemed to be a valuable meaning behind all of that.
+
+It was rather refreshing and eye-opening to see each other in such an awkward and strange relationship. There were many different things that I had felt.
+
+For เยนิกา, no matter how close she was with someone, if they needed help she would gladly step forward and lend a hand.
+
+If she were to see someone in pain collapse on the street, she would try to help them before even checking to see if they were a beggar or a robber. Even though it was a bit awkward and strange to ask… she would still put the weight on her shoulders and approach them, asking, ‘Excuse me, do you need any help?’
+
+However, there was no rule that said the world would always be fair. After all, not all goodwill was returned.
+
+Even though she constantly went out of her way to help others… That didn’t mean there would always be someone on her side, even when she was in pain.
+
+How depressing was it that even when someone sat there on the sidewalk, crying out, no one would bear the weight on their shoulders to call out in concern saying, ‘Excuse me?’
+
+However, in the end someone wouldn’t be able to bear it, placing their hand on their shoulder. That was the difference between those that have lived a life of giving.
+
+After I finished speaking, I also started to feel a bit awkward, so I quietly looked up at the sky.
+
+I thought that with เยนิกา’s personality, she would be happily running around… But surprisingly, she was responding calmly.
+
+She wrapped her arms around my shoulders as she sat next to me, hugging me tightly. She then spoke with a teary voice.
+
+“Thanks…”
+
+“……”
+
+While holding onto เยนิกา, stroking her hair with one of my hands… I looked up at the sky quietly.
+
+The night at เกาะอาเคน was vast and bright.
+
+***
+
+[Good morning, young master เอ็ด…! I don’t know if this situation might seem a bit sudden to you, but this worthless Mugg will explain it to you slowly…!]
+
+After sending เยนิกา back off to หอพักเด็กซ์, I slept—before suddenly waking up to a strange sight… All different types of spirits were filling my camp.
+
+At the center of them was the high-ranking fire spirit Takan. It was a bit difficult to see him without using any resonance.
+
+“……”
+
+[Oh, you woke up, เอ็ด โรสเทย์เลอร์.]
+
+Seeing him lead the army of spirits, waving his massive tail back and forth, he truly looked like the commander of the corps.
+
+[I need your advice. I have no experience building a cabin. If possible, I want it to give off a similar feeling to your cabin. Cutting the wood and trimming it down is possible with the cute little hands of a spirit, but still… Architecture is a much more delicate job than I had thought.]
+
+“…First off, can you slowly explain the situation to me a bit…?”
+
+[You might not be able to tell, but right now, we’re building a cabin.]
+
+As for เยนิกา, after staying in my arms for a while last night she had gone back to the dorms blushing.
+
+How she would move into her life at the camp in the future, when she should submit the application for her leave at หอพักเด็กซ์, and the details of how to build a cabin. I was planning to deal with all those things slowly later today or tomorrow.
+
+[We’ll explain the details later on. To be honest, I’m also a bit exhausted.]
+
+“What?”
+
+[Yesterday, I stayed up all night in the Spirit Realm partying… Well, there’s really no point in telling you all of that. Anyway, since we’re so inclined, we should do what we have to right away.]
+
+He didn’t tell me a single specific detail.
+
+[So, I finished selecting the site for the cabin, but, well… I think it would be really good to put it on the opposite side of the campfire. There will be a romantic feeling in the air the moment you both open your doors and see each other in the morning. Well, I also don’t think it would be all too bad to build it right next to yours, either… Still, wouldn’t that feel too stuffy? And we should keep at least a minimum level of privacy… Hmm… Maybe not…? In the end, if we’re going to build it right, we should build it as close as possible…]
+
+“It’s only been one night but you’ve already done this much…?”
+
+[I’m sorry, but without my momentum pushing me I’m basically slow as a slug.]
+
+Maybe he still had a grudge against me after his head was cut off in the 1st Act.
+
+Seeing the enormous fire lizard laughing and giggling like that nearly gave me goosebumps.
+
+[The overall plan will take about ten days, Mr. Takan. This worthless Mugg will act as the field commander and make the most efficient schedule…!]
+
+[Ten days…?]
+
+[Yes…! After considering the change of schedules between the low-ranking spirits and creating a schedule for breaks, I deduced that it would take that long. To further reduce the amount of time it will take, we would first have to look at the progress of the schedule and…]
+
+[Breaks…? Why would you take any breaks…?]
+
+Takan opened his terrifyingly large eyes and… spoke in a low voice.
+
+[I really can’t understand. Why would you take any breaks…?]
+
+[Excuse me…?]
+
+[When I was young, I used to run around alongside an elementalist for three days and three nights in a row. Even when I had to cross through the snowy mountaintops for an entire week, it was normal to go straight into combat the next day. Either way, the number of Elementalists has increased and making contracts has become easier, so it seems the discipline of low-ranking spirits has also hit rock bottom. You all only think about eating your fill and taking your breaks every single day. Acting like this, when do you plan to raise your status, aim for becoming a mid-ranking spirit, and meeting a proper high-ranking Elementalist to make a contract with…?]
+
+Mugg’s ability to read the room at a glance was amazing. He had goosebumps hearing Takan talk at first, but now he couldn’t stop nodding his head in agreement.
+
+[Th-Then, we will pull up the schedule as much as possible… And in a week, we can…]
+
+[That… shifting of schedules you mentioned… can’t we push the schedule up further by just getting rid of it…?]
+
+[Excuse me?]
+
+[Do you know just how much เยนิกา is bearing these days? And if we decide to finish it in a week’s time, do you know just how much her heart will pound each night in anticipation as she sleeps? Can’t you fathom just how she might feel…?]
+
+Mugg’s face started to lose its energy, as he wasn’t sure what to do as Takan continued to skillfully speak.
+
+[Finish it in five days. For advice on architecture, just go and ask เอ็ด โรสเทย์เลอร์.]
+
+[Yes…! I understand…!]
+
+After speaking, he wagged his giant tail as he left to do his business.
+
+[This… Suicidal schedule… how… Just how…]
+
+Looking around the camp, all different kinds of spirits started to sweat profusely as they moved pieces of wood.
+
+[If that’s what he says… then that’s what we have to do… This worthless Mugg… will do it… I have to…. I have to do it…!!]
+
+Come to think of it, I was the cause for all of it.
+
+After Takan left, looking at the frustrated Mugg, who was sitting on a tree stump… I offered him a silent prayer.
+
+*Really… I’m so sorry…!! Mugg…!!*
+
+*It wasn’t on purpose… Really…!!*
